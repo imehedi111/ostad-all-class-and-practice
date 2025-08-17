@@ -1,0 +1,1 @@
+# ostad-all-class-and-practice
